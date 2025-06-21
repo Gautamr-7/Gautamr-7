@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Gautamr-7
 - 👀 I’m interested in gaming,football
-- 🌱 I’m currently learning ...
+- 🌱 I’m currently learning ??
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me : gautamr1357@gmail.com
 - 😄 Pronouns: he/him
