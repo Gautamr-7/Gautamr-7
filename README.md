@@ -5,7 +5,7 @@
 - 📫 How to reach me : gautamr1357@gmail.com
 - 😄 Pronouns: he/him
 - ⚡ Fun fact:  stay hungry stay foolish
-
+https://app.notion.com/p/ML-External-Lab-Exam-Prep-4111835d4842800d9e1cc4e6b712bfe9?source=copy_link
 <!---
 Gautamr-7/Gautamr-7 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
